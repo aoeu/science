@@ -1,2 +1,2 @@
 # science
-For science.
+For the love of science.
